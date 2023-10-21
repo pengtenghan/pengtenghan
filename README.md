@@ -1,0 +1,4 @@
+- ⚡️ Fun-Fact: I sleep at 3am 🙃
+- 🎿 Hobbies other than coding : Reading blogs or about History , Playing Chess , Thinking about writing blogs 🤔🤖..
+- 📫 How to reach me: aman.atg001@gmail.com
+- 📝 [Resume](https://www.canva.com/design/DAD8JlnPFhw/3v-OrtVl-UETeMGVfscAgQ/view?) (old)
